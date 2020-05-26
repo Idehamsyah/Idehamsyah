@@ -1,0 +1,2 @@
+# Idehamsyah
+Trading
